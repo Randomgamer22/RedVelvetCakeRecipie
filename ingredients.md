@@ -1,4 +1,4 @@
-###Main Ingredients
+Main Ingredients
 ¼ cupNestlé a+ Nourish Milk
 150 gmsButter
 150 gmsPowdered Sugar
@@ -9,7 +9,7 @@
 1 tspVanilla Essence
 2 tbspRed Colour
 
-###Topping
+Topping
 100 gmsNestlé MILKMAID
 400 gmsNestlé a+ Nourish Dahi
 1 tbspButter
